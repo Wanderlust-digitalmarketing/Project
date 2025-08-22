@@ -1,4 +1,4 @@
-# Project
+# Wanderlust
 DEPI graduation project
 
 Project name: Wanderlust
