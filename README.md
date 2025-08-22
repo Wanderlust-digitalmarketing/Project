@@ -1,4 +1,8 @@
 # Project
 DEPI graduation project
 
-Proect name: Wanderlust
+Project name: Wanderlust
+
+Presentation:
+
+Drive:
