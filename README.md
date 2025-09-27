@@ -28,6 +28,14 @@ Yasmine Ahmed
 
 Roles & Responsibilities 
 
+Doaa Mahmoud:  Leader
+Team and tasks regulation
+Contacting with green camp
+Graphic design and visual
+content creartion 
+Documentation
+
+
 
 
 
