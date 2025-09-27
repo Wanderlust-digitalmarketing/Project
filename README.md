@@ -35,6 +35,12 @@ Graphic design and visual
 content creartion 
 Documentation
 
+GANNA TAHA 
+content calender creation 
+Posting content and
+business suite regulation
+Documentation'
+
 
 
 
