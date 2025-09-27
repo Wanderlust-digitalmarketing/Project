@@ -56,8 +56,23 @@ creation
 Documentation
 
 
+Tasabeeh Ahmed:
+Content calender creation
+Business suite regulation
+Documentation
 
 
+
+Mostafa Mahmoud:
+Visual content - Reel
+creation
+Documentation
+
+
+Yasmine Ahmed:
+Written content - post
+and caption creation
+Documentation
 ------------------------------------------------------------
 
 
