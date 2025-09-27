@@ -1,10 +1,10 @@
-# Green Camp Egypt
+ Green Camp Egypt
 
 
 DEPI graduation project
 
 Project name: Green Camp Egypt
-
+project idea: 
 Team: Wanderlust
 
 Presentation: 
