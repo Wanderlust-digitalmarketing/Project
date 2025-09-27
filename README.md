@@ -26,8 +26,24 @@ Malak Mohamed
 
 Yasmine Ahmed
 
+Roles & Responsibilities 
+
+
+
+
+
+KPIS(Key Performance Indicators)
+
+
+
+
+Instructor: ASHRAF ALROUBY
+
+Project files:
 Presentation: 
 https://www.canva.com/design/DAGzPVJ66ak/I4sFEUPU2GYkm8DFEXkVgA/view?utm_content=DAGzPVJ66ak&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h4f0db9687a
 
 Drive:
 https://drive.google.com/drive/folders/1lG0ZTdeR8yubORPUdo_pxQTER0uQ1bCW?usp=drive_link
+
+
