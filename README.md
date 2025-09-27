@@ -15,10 +15,15 @@ culture, and themselves.
  
 Team members:
 Doaa Mahmoud  (leader)
+
 Mostafa Mahmoud
+
 Ganna Taha
+
 Tasabih Ahmed
+
 Malak Mohamed
+
 Yasmine Ahmed
 
 Presentation: 
