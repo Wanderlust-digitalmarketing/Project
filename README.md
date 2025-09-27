@@ -31,15 +31,28 @@ Roles & Responsibilities
 Doaa Mahmoud:  Leader
 Team and tasks regulation
 Contacting with green camp
+
 Graphic design and visual
+
 content creartion 
+
 Documentation
 
-GANNA TAHA 
+GANNA TAHA: 
 content calender creation 
+
 Posting content and
 business suite regulation
-Documentation'
+
+Documentation
+
+
+Malak Mohamed:
+
+Visual content - Reel
+creation
+
+Documentation
 
 
 
